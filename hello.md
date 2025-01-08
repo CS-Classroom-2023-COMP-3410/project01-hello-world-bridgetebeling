@@ -1,0 +1,1 @@
+Hi! My name is Bridget and I love the color pink.
